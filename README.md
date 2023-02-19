@@ -1,4 +1,4 @@
-### Hi there 👋
+Hello I am Linka keep browsing I promise you get bored!
 
 <!--
 **k-Raiden/K-Raiden** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
