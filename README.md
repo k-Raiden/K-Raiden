@@ -1,6 +1,6 @@
 Hello I am Linka keep browsing I promise you get bored!
 
-<!--
+<!-- life is too short 
 **k-Raiden/K-Raiden** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
